@@ -1,1 +1,1 @@
-not responsine 
+not responsive website page 
